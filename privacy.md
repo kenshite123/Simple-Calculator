@@ -21,3 +21,6 @@ We may update this privacy policy from time to time. Changes will be posted on t
 
 Contact Us
 If you have any questions about this policy, please contact us at:
+
+- Name: Bui Cong Chinh
+- Email: congchinhit94@gmail.com
